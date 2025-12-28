@@ -1,0 +1,1 @@
+# mythanks-privacy-policy
